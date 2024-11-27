@@ -1,2 +1,1 @@
-# XY-boy.github.io
-[XY-boy.github.io](https://xy-boy.github.io/)
+# QZ1-boy.github.io
